@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @oisea99
 - 👀 I’m interested in Gaming, Cubing, Bonk.io, and Discord.
 - 🌱 I’m currently learning programming and computer science.
-- 💞️ I’m looking to collaborate on no one.
 - 📫 How to reach me: You can reach me on Discord @oisea_99
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like pineapple on pizza
